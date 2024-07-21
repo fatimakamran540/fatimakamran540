@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science and innovative technology!
 - 🌱 I’m currently learning  mern stack.
 - 💞️ I’m looking to collaborate on mern projects.
-- 📫  Reach out to me  on instagram  _fatimakamran_
+- 📫  Reach out to me  on instagram  _fatimakamran_ OR inbox me on fatimakamran540@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm a clean freek!
 
